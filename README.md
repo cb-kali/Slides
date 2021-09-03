@@ -1,6 +1,6 @@
 # If you are beginner or intermediate check this repository, it helps you in learning new thing and clear your basic  cyber security.
 
-## I will share my knownlgye in ppt formate.
+## I am sharing my knownlgye in ppt formate.
 
 ## Follow me on my social networks:
 
