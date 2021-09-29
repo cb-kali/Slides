@@ -1,7 +1,7 @@
 # If you are beginner or intermediate check this repository, it helps you in learning new thing and clear your basic  cyber security.
 
 
-## I will share his knowledge in ppt format
+## I will share my knowledge 
 
 ## Follow me on my social networks:
 
